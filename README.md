@@ -1,1 +1,1 @@
-# Anwar-ul-uloom-almia
+# Anwar-ul-uloom-almiya
